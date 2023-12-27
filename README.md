@@ -19,4 +19,4 @@ https://drive.google.com/file/d/1TX3jmcamKR4SoBlMUf1MwBWYv-OqU0RQ/view?usp=drive
 
 PPT LINK
 
-https://docs.google.com/presentation/d/1T0vGT_9BhAyq7ktvZqFdnauVuk7433xI/edit?usp=drivesdk&ouid=101226583461316292254&rtpof=true&sd=true
+https://docs.google.com/presentation/d/1U4RxL7M_iHQFYoif-mYRONfFFceRS11s/edit?usp=drivesdk&ouid=101226583461316292254&rtpof=true&sd=true
